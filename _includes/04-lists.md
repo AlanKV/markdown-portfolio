@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+*animebee:happy:
+
+*manga4life:excited:
+
+*bgmi:sad:
