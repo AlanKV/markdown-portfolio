@@ -1,1 +1,2 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+**Anime** are extremely good they are on another __level__
+_don't consider them as cartoons_
