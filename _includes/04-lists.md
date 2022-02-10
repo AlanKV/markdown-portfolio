@@ -1,5 +1,5 @@
-*animebee:happy:
+* animebee:happy:
 
-*manga4life:excited:
+* manga4life:excited:
 
-*bgmi:sad:
+* bgmi:sad:
